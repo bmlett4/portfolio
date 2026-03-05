@@ -1,2 +1,2 @@
 # portfolio
-graphic and literature of projects. 
+graphic and literary porfilio containing posters, presentations, and literature resulting from scientific research and projects. 
