@@ -11,7 +11,7 @@ October 2018, SCC-084 Multi-State Dairy Genetics Projects |  
 
 ### Identification and tracing rare mutation causing increased ovulation rate in cattle family
 
-### Thesis Project 
+### Thesis defense 
 
 ## Posters 
 ###  Multiple Births in Dairy Cattle - influences from TFG-B superfamily 
